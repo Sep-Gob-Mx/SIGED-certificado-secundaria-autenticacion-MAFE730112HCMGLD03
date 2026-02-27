@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MAFE730112HCMGLD03
+MAFE730112HCMGLD03
